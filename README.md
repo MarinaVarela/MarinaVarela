@@ -1,6 +1,6 @@
 ## Olá, sou Marina Varela! 
 <p>Fico feliz que você decidiu dar uma passadinha aqui no meu perifl ✨</p>
-<p>Trabalho com desenvolvimento de software, com foco em Wed, Dados e Automação. Carrego a experiência de mais de 5 anos como Jornalista, trabalhando com relacionamento, coordenação de equipe e produção de conteúdo sobre Startups, Tecnologia, Economia, Finanças e Cultura.</p>
+<p>Trabalho com desenvolvimento de software, com foco em Web, Dados e Automação. Carrego a experiência de mais de 6 anos como Jornalista, trabalhando com relacionamento, coordenação de equipe e produção de conteúdo sobre Startups, Tecnologia, Economia, Finanças e Cultura.</p>
 
 🌟 #OpenToWork
 <br>
